@@ -5,3 +5,5 @@ Hi, im Furkan. I was born in 19 May 1997. I was introduced to information techno
 
 My Tech Stack: ( Please look at the my CV. )
 [FAB CV](https://depo.nibgat.com/index.php/s/TGIsij49aPtiwTE)
+
+[ Twitter](https://x.com/ll_fab_ll)
